@@ -24,5 +24,7 @@ ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img
 <img src="https://file.garden/ajEmDVLLZz_x6I1W/stamp-cat.webp" width="30%"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled460_20260621152955.png" width="35%"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled459_20260621152319.png" width="30%">
  
 <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621155538.png" width="120%">
-${\color{#FB7686}\textsf{MIS REPOS ME LOS ESTÁN COPIANDO}}
+
+I'M CRY
+ME ESTÁN COPIANDO MIS Repositorios... 
 
