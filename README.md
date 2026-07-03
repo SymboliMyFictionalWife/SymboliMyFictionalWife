@@ -1,16 +1,26 @@
-## Hi there 👋
+<div align="center"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621161647.png" width="120%">
+  
+${\color{#FB7686}\textsf{¹. helloo im mostly known as Morris/Ari/Sunny}}$ 
 
-<!--
-**UnhappyPicture/UnhappyPicture** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+${\color{#FDA27A}\textsf{that isnt my only name u can check prns page 4 that}}$ 
 
-Here are some ideas to get you started:
+${\color{#FCDF8C}\textsf{². my pronouns are shy/hyr}}$ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+${\color{#CCE388}\textsf{idm u using other prns its just eh}}$
+
+${\color{#A2DACD}\textsf{³. c+h freely i dont bite : 3}}$
+
+${\color{#B885CB}\textsf{whisper first, if im w/ friends ok}}$
+
+<img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_lmu1ipF3r01qcfn0j540.gif" width="90%">
+
+${\color{#C9E687}\textsf{prnspage}}$ [🌈](https://en.pronouns.page/@sunnyfoggy) <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_dce22cd84dcb66eddbf61caf0f9d9e31_e9e52a8f_100.gif" width="25%">
+
+${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_5d7acf320acdbd8be8b440e21bd80758_f16edab9_100.gif" width="25%">
+
+${\color{#FFFFFF}\textsf{daily click}}$  [🍉](https://arab.org/click-to-help/palestine/)
+<img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_2dd983dea131f9a98be96015ec7aba72_077e85e5_100.gif" width="25%">
+
+<img src="https://file.garden/ajEmDVLLZz_x6I1W/stamp-cat.webp" width="30%"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled460_20260621152955.png" width="35%"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled459_20260621152319.png" width="30%">
+ 
+<img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621155538.png" width="120%">
