@@ -26,5 +26,5 @@ ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img
 <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621155538.png" width="120%">
 
 I'M CRY
-ME ESTÁN COPIANDO MIS Repositorios... 
+
 
