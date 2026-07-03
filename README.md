@@ -1,6 +1,6 @@
 <div align="center"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621161647.png" width="120%">
   
-${\color{#FB7686}\textsf{¹. helloo im mostly known as Morris/Ari/Sunny}}$ 
+${\color{#FB7686}\textsf{¹. helloo im mostly known as Mortis}}$ 
 
 ${\color{#FDA27A}\textsf{that isnt my only name u can check prns page 4 that}}$ 
 
@@ -18,7 +18,7 @@ ${\color{#C9E687}\textsf{prnspage}}$ [🌈](https://en.pronouns.page/@sunnyfoggy
 
 ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_5d7acf320acdbd8be8b440e21bd80758_f16edab9_100.gif" width="25%">
 
-${\color{#FFFFFF}\textsf{daily click}}$  [🍉](https://arab.org/click-to-help/palestine/)
+
 <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_2dd983dea131f9a98be96015ec7aba72_077e85e5_100.gif" width="25%">
 
 <img src="https://file.garden/ajEmDVLLZz_x6I1W/stamp-cat.webp" width="30%"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled460_20260621152955.png" width="35%"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled459_20260621152319.png" width="30%">
