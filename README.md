@@ -28,14 +28,11 @@ ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img
 
 <img src="https://media.tenor.com/zh7BuYTb_O0AAAAj/shocked-anime.gif" width="35">
 
-<br>
-
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-
 </div>
 </div>
 I'M CRY
 <img
 src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621155538.png" width="120%">
 <div align="center">
+Ü
 
