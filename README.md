@@ -27,7 +27,15 @@ ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img
 <div align="center">
 
 <img src="https://media.tenor.com/sIwa-WaEGAQAAAAj/hello-hi.gif" width="70">
+<div align="center">
 
+<img src="https://media.tenor.com/zh7BuYTb_O0AAAAj/shocked-anime.gif" width="35">
+
+<br>
+
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
+</div>
 </div>
 I'M CRY
 
