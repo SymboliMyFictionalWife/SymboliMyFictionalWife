@@ -1,3 +1,11 @@
+<div align="center">
+
+<a href="https://hits.sh/github.com/UnhappyPicture/">
+<img alt="Hits" src="https://hits.sh/github.com/UnhappyPicture.svg?style=for-the-badge&label=%E2%99%A1%20visitors%20%E2%99%A1&color=F8C8DC&labelColor=FFFFFF"/>
+
+</a>
+
+</div>
 <div align="center"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621161647.png" width="120%">
   
 ${\color{#FB7686}\textsf{¹. helloo im mostly known as Mortis}}$ 
