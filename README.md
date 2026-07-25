@@ -1,7 +1,9 @@
 <div align="center">
 
 <a href="https://hits.sh/github.com/UnhappyPicture/">
-<img alt="Hits" src="https://hits.sh/github.com/UnhappyPicture.svg?style=for-the-badge&label=%E2%99%A1&color=F8C8DC&labelColor=FFFFFF"/>
+<img alt="Hits" 
+  <div align="center"> <img src="https://file.garden/ajEmDVLLZz_x6I1W/vl3o5omhnc3f9njy.gif" width="50%">
+src="https://hits.sh/github.com/UnhappyPicture.svg?style=for-the-badge&label=%E2%99%A1&color=F8C8DC&labelColor=FFFFFF"/>
 
 </a>
 
