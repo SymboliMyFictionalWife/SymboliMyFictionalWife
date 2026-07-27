@@ -46,7 +46,8 @@ ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img
 </div>
 I'M CRY
 <img
-https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/IMG-20260702-WA0018.jpg
+src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/IMG-20260702-WA0018.jpg
+  <div aligh="center">
 Me and my GF  ₍ᐢ..ᐢ₎♡ 
 
 <img
