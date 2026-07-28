@@ -47,7 +47,9 @@ ${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img
 
 <img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/IMG-20260702-WA0018.jpg">
 
-${\color{#FB7686}\textsf{Me\ and\ my\ Gf\ ˃͈◡˂͈}}
+<h3 align="center">
+<font color="#FB7686">♡ Me and my Gf ˃͈◡˂͈ ♡</font>
+</h3>
 
 <img
 src="https://file.garden/ajEmDVLLZz_x6I1W/Untitled463_20260621155538.png" width="120%">
