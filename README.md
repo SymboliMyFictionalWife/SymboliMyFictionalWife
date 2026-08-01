@@ -30,7 +30,7 @@ ${\color{#B885CB}\textsf{whisper first, if im w/ friends ok}}$
 
 ${\color{#C9E687}\textsf{prnspage}}$ [🌈](https://en.pronouns.page/@sunnyfoggy) <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_dce22cd84dcb66eddbf61caf0f9d9e31_e9e52a8f_100.gif" width="25%">
 
-${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://sunnyfoggy.straw.page) <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_5d7acf320acdbd8be8b440e21bd80758_f16edab9_100.gif" width="25%">
+${\color{#FB7686}\textsf{strawpage}}$ [🖍](https://unhappy.straw.page) <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_5d7acf320acdbd8be8b440e21bd80758_f16edab9_100.gif" width="25%">
 
 
 <img src="https://file.garden/ajEmDVLLZz_x6I1W/tumblr_2dd983dea131f9a98be96015ec7aba72_077e85e5_100.gif" width="25%">
