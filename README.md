@@ -20,7 +20,7 @@ ${\color{#FDA27A}\textsf{that isnt my only name u can check prns page 4 that}}$
 
 ${\color{#FCDF8C}\textsf{². my pronouns are shy/hyr}}$ 
 
-${\color{#CCE388}\textsf{idm u using other prns its just eh}}$
+${\color{#CCE388}\textsf{i really love cats AND odyssey duo}}$
 
 ${\color{#A2DACD}\textsf{³. c+h freely i dont bite : 3}}$
 
